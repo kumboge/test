@@ -1,24 +1,36 @@
 
-### [声明—加拿大对俄罗斯总统普京的女儿们实施制裁](content/gnews/2384600.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [上海防疫人员在屠杀宠物](content/gnews/2384684.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美驻联合国大使会晤被中共集中营关押的新疆维族人家属](content/gnews/2384671.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共从俄乌克兰战争吸取哪些教训？](content/gnews/2384660.md)
+ ` 秘密翻譯組G-Translators`
+
+### [一辆乌克兰坦克开火穿过一座被炸毁的建筑，一炮将另一侧的俄罗斯装甲运兵车干掉](content/gnews/2384653.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [不要相信所谓的民调。一旦你沉默了，那你就变成了同谋，你就允许他人控制你的生活](content/gnews/2384619.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [秘翻新闻｜美正耗尽弹药储备 中共国粮食危机](content/gnews/2384614.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [美国加拿大英国在20国集团会议上离场抗议俄罗斯](content/gnews/2384610.md)
+ ` 墨尔本雅典娜农场`
+
+### [《历史的今天》2022.04.21](content/gnews/2384590.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
 ### [台湾报告11架中共国军机侵入防空识别区](content/gnews/2384586.md)
  ` 西班牙巴塞罗那喜悦农场`
 
+### [俄罗斯对车诺比的攻击被看作是核威胁的“恶梦”](content/gnews/2384585.md)
+ ` 秘密翻譯組G-Translators`
+
 ### [沃尔夫博士谈辉瑞疫苗案调查中的惊人发现](content/gnews/2384579.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [COVID-19疫苗副作用集萃(2022.4.21G) 混打三针新冠疫苗患白血病风险加剧](content/gnews/2384537.md)
- ` 墨尔本雅典娜农场`
-
-### [樱花时政┃美英加官员因俄罗斯的参与而退出G20会议](content/gnews/2384536.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花时政┃芬兰议会今启加入北约辩论](content/gnews/2384521.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花时政┃俄乌战争乌克兰难民今突破500万](content/gnews/2384502.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [中共国和印度正在将俄罗斯从经济崩溃中拯救出来](content/gnews/2384485.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -65,9 +77,6 @@
 ### [疫情｜台湾官方预估“4月底单日确诊破万”规划第四剂](content/gnews/2384194.md)
  ` 關注組`
 
-### [视频|法治基金在乌克兰的人道救援行动仍在继续](content/gnews/2384184.md)
- ` MOSVIDEO`
-
 ### [日本官房长官表示关注“中国所罗门安全协议”](content/gnews/2384140.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
@@ -83,14 +92,8 @@
 ### [核酸检测的棉签有毒吗？请用唾液替代！](content/gnews/2384105.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [Nicole在波兰梅迪卡难民营采访21岁的俄罗斯义工 （第二部分）](content/gnews/2384096.md)
- ` 喜马拉雅-华盛顿DC农场`
-
 ### [泄露的录音：阿斯利康CEO称免疫力低下的人不能接种疫苗](content/gnews/2384062.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【秘翻北美时评】疫苗灾难给人类和地球的伤害](content/gnews/2384037.md)
- ` 秘密翻译组-即时新闻播报组`
 
 ### [美国财政部制裁支持侵略战争的俄罗斯虚拟货币采矿公司](content/gnews/2383926.md)
  ` 東京櫻花団-Tokyo Sakura Group`
@@ -127,9 +130,6 @@
 
 ### [德国人电话中骂中共国和政府是一坨屎的录音已全网删除](content/gnews/2383248.md)
  ` 喜马拉雅日本银河系农场`
-
-### [中共小粉红因言论攻击美国被哥大撤销录取](content/gnews/2383128.md)
- ` 日本東京方舟農場`
 
 ### [樱花时政┃联俄两线开火各取所需 中共加速全球自动灭共进程（十五）](content/gnews/2382049.md)
  ` 東京櫻花団-Tokyo Sakura Group`
