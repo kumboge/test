@@ -18,6 +18,7 @@
 [@miles 4/21/2022 1:00 PM (UTC)](/content/gettr/p16da6idf77.md)
 
 4月21日：尊敬的战友们好．看共产党流氓，这些所谓的辟谣，真的很让人无语，共产党真的是把14亿中国人民当成猪了……，否则他们不可能总是一贯的．用这种掩耳盗铃．愚蠢无知的宣传……谎言来欺骗这么多老百姓．可恨至极……新中国联邦将彻底消灭中国共产党！
+
 <img src="https://media.gettr.com/group32/getter/2022/04/21/13/d19f2b0a-a2a5-a4c5-ba17-591734aa73e3/fc6c989cf320788fe6f764aa1661f28c.jpg" width="506" height="284">
 
 ---
@@ -45,6 +46,7 @@ Medyka救援站接待：约13359人
 
 
 New Federal State of China & ...
+
 <img src="https://media.gettr.com/group50/getter/2022/04/21/13/7b7f37f6-f17e-f270-768d-b2840442998b/5377e32cfbe365e092dba5370f4be817.jpg" width="506" height="284">
 
 ---
@@ -80,6 +82,7 @@ No.1 🥇 on 12 ...
 [@miles 4/21/2022 5:52 PM (UTC)](/content/gettr/p16fjj24340.md)
 
 In CCP’s China, when there is an outbreak of the CCP virus, once the pet’s owner tests positive for nucleic acid and is forcibly quarantined, their pet at...
+
 <img src="https://media.gettr.com/group17/origin/2022/04/21/17/8ba2716a-305f-2b81-6176-8ac53c864095/out.jpg" width="506" height="284">
 
 ---
@@ -87,6 +90,7 @@ In CCP’s China, when there is an outbreak of the CCP virus, once the pet’s o
 [@miles 4/21/2022 6:04 PM (UTC)](/content/gettr/p16f8xf7fa5.md)
 
 4/21/2022 Miles Guo: The US House Speaker Nancy Pelosi will visit Taiwan on April 26. What will happen to Taiwan? This time the US totally ignored the “Gr...
+
 <img src="https://media.gettr.com/group43/getter/2022/04/21/18/75a258e7-2816-0d1a-9753-5db0b883a16b/out.jpg" width="506" height="284">
 
 ---
@@ -94,6 +98,7 @@ In CCP’s China, when there is an outbreak of the CCP virus, once the pet’s o
 [@miles 4/21/2022 6:45 PM (UTC)](/content/gettr/p16g4d9efd7.md)
 
 4/21/2022 Miles Guo: Please shout it out! A large number of CCP's armed police have been deployed to at least a dozen of locations in Beijing, which is a ...
+
 <img src="https://media.gettr.com/group11/getter/2022/04/21/18/6827e201-f23b-e393-d66a-9163282ef4ee/out.jpg" width="506" height="284">
 
 ---
@@ -107,6 +112,7 @@ In CCP’s China, when there is an outbreak of the CCP virus, once the pet’s o
 [@miles 4/21/2022 8:14 PM (UTC)](/content/gettr/p16gho308eb.md)
 
 Volunteers at the Medyka rescue center joined us talking about the meaning of the VOA’s 419 interruption incident. Nicole introduced that VOA, a US taxpay...
+
 <img src="https://media.gettr.com/group42/origin/2022/04/21/20/954d258b-fe9a-3e3b-f4af-95260bb6baf6/out.jpg" width="506" height="284">
 
 ---
@@ -142,6 +148,7 @@ For English：gettr.com/streaming/p16hjrrc080
 [@miles 4/21/2022 11:48 PM (UTC)](/content/gettr/p16i70a7d66.md)
 
 4/21/2022 Miles Guo: If the CCP takes action against Taiwan between April 26th and May 6th, martial law will certainly be imposed in Beijing, and the situ...
+
 <img src="https://media.gettr.com/group12/getter/2022/04/21/23/35438e72-c6f6-f89e-f0f6-3cc9be9bc5dd/out.jpg" width="506" height="284">
 
 ---
@@ -149,6 +156,7 @@ For English：gettr.com/streaming/p16hjrrc080
 [@miles 4/21/2022 11:50 PM (UTC)](/content/gettr/p16i9ow6828.md)
 
 4/21/2022 Miles Guo: Xi Jinping currently has three difficulties: 1. China's economy has collapsed already; 2. The political struggle within the CCP is ap...
+
 <img src="https://media.gettr.com/group23/getter/2022/04/21/23/e433255c-9e83-dd13-99e6-47aac235c34c/out.jpg" width="506" height="284">
 
 ---
@@ -156,6 +164,7 @@ For English：gettr.com/streaming/p16hjrrc080
 [@miles 4/21/2022 11:52 PM (UTC)](/content/gettr/p16iabd492b.md)
 
 4/21/2022 Miles Guo: There is zero chance that Xi Jinping won’t invade Taiwan! The only choice left for Xi is either to bring down Taiwan’s economy or dev...
+
 <img src="https://media.gettr.com/group12/getter/2022/04/21/23/f5261ac9-4838-5e54-2adc-0ffe455e101a/out.jpg" width="506" height="284">
 
 ---
