@@ -21,6 +21,7 @@ Refugees Rescued by Bus: 2009 people
 Bus Departures: 39 times
 
 #UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+
 ![img](https://media.gettr.com/group50/getter/2022/04/21/13/7b7f37f6-f17e-f270-768d-b2840442998b/5377e32cfbe365e092dba5370f4be817.jpg)
 
 [轉發自GETTR](https://gettr.com/post/p16djui4f94)
