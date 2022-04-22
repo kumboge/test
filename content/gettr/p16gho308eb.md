@@ -1,8 +1,0 @@
-`@miles 4/21/2022 8:14 PM UTC`
-
-[轉發自GETTR](https://gettr.com/post/p16gho308eb)
-
-Volunteers at the Medyka rescue center joined us talking about the meaning of the VOA’s 419 interruption incident. Nicole introduced that VOA, a US taxpayers funded international broadcast which is owned by the US government, abruptly shut down an interview with Mr. Miles Guo after receiving an order from some Chinese Communist Party (CCP) high officials. One of the volunteers said it’s heartbreaking to hear such an incident happening in the United States, which is supposed to be a symbol of freedom and democracy. Another volunteer said people need the truth and not be dissuaded by fear or threats.
-在梅迪卡营救中心的几位义工加入我们谈论关于美国之音419断播事件的意义。妮可介绍了美国之音，一家由美国纳税人资助的隶属美国政府的国际广播，在采访郭文贵先生过程中收到了来自中共高层的命令，突然中断了采访。其中一名义工说听到这个事件在美国这样一个代表自由和民主的国家发生，是令人心碎的。另一名义工说人们需要了解真相，并且不被恐惧和威胁吓倒。
-
-![img](https://media.gettr.com/group42/origin/2022/04/21/20/954d258b-fe9a-3e3b-f4af-95260bb6baf6/out.jpg)
