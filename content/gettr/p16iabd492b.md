@@ -1,4 +1,6 @@
-`@miles 4/21/2022 11:52 PM (UTC)`
+`@miles 4/21/2022 11:52 PM UTC`
+
+[轉發自GETTR](https://gettr.com/post/p16iabd492b)
 
 4/21/2022 Miles Guo: There is zero chance that Xi Jinping won’t invade Taiwan! The only choice left for Xi is either to bring down Taiwan’s economy or devastate Taiwan by using strategic nuclear weapons. It was the first time for the U.S. to diplomatically disregard the CCP’s furious protest against Nancy Pelosi’s plan to visit Taiwan. The CCP will fight the US to the end.
 
@@ -6,5 +8,3 @@
 
 
 ![img](https://media.gettr.com/group12/getter/2022/04/21/23/f5261ac9-4838-5e54-2adc-0ffe455e101a/out.jpg)
-
-[轉發自GETTR](https://gettr.com/post/p16iabd492b)

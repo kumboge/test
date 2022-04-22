@@ -1,4 +1,6 @@
-`@miles 4/21/2022 6:04 PM (UTC)`
+`@miles 4/21/2022 6:04 PM UTC`
+
+[轉發自GETTR](https://gettr.com/post/p16f8xf7fa5)
 
 4/21/2022 Miles Guo: The US House Speaker Nancy Pelosi will visit Taiwan on April 26. What will happen to Taiwan? This time the US totally ignored the “Grave Concerns” of the CCP. April 26 will be a watershed moment for China-US relations.
 
@@ -6,5 +8,3 @@
 
 
 ![img](https://media.gettr.com/group43/getter/2022/04/21/18/75a258e7-2816-0d1a-9753-5db0b883a16b/out.jpg)
-
-[轉發自GETTR](https://gettr.com/post/p16f8xf7fa5)
