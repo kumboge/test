@@ -1,4 +1,4 @@
-﻿###  [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/README.md) | [:pray:關於](/content/about.md)
+﻿###  [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
 推薦文章:point_down:
@@ -14,6 +14,12 @@
 :new: :tada::tada::tada: [本倉庫網頁版](https://ourhimalayas.github.io/)
 
 ---
+
+#### [2018年9月28日 郭文贵先生直播全文字版](/content/gnews/2413590.md)
+ `温哥华扬帆农场《文贵大直播》全文听写组`
+
+#### [加拿大官员退出G20会议以抗议俄罗斯参与](/content/gnews/2413575.md)
+ `加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 #### [4/24/2022 文贵直播：俄乌战争把俄罗斯从“战斗民族”变成了“骗斗民族”，俄罗斯必将解体并大量移民海外](/content/gnews/2413569.md)
  `秘密翻译组-北美组`
@@ -66,9 +72,6 @@
 #### [加拿大和G20盟友联合抵制俄罗斯](/content/gnews/2413103.md)
  `加拿大温哥华扬帆农场《枫叶快讯》`
 
-#### [揭露朱善璐，李友等的丑闻丑事](/content/gnews/2413089.md)
- `加拿大温哥华英里农场`
-
 #### [揭露付振华的罪行和背后的阴谋](/content/gnews/2413088.md)
  `加拿大温哥华英里农场`
 
@@ -95,9 +98,6 @@
 
 #### [英国向乌克兰派遣特种空勤部队](/content/gnews/2412794.md)
  `NFSC News`
-
-#### [西医在中国的发展（十一）-传教士 胡美医生](/content/gnews/2412792.md)
- `喜马拉雅纽约磐石农场`
 
 #### [突然过早死亡的情况还在不断发生](/content/gnews/2412681.md)
  `xiaobaige`
