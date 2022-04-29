@@ -2,58 +2,35 @@
 ## 中非共和国采用比特币作为官方货币
 [轉載自喜马拉雅财经](https://himoney.press/central-african-republic-adopts-bitcoin-as-official-currency/)
 
-4月 27, 2022 灭共小猫 `喜币和加密货币` 
+:date: 4月 27, 2022 :cat: 灭共小猫 `喜币和加密货币` 
 
-&nbsp;&nbsp;&nbsp;&nbsp;
+https://gettr.com/share?text=%E4%B8%AD%E9%9D%9E%E5%85%B1%E5%92%8C%E5%9B%BD%E9%87%87%E7%94%A8%E6%AF%94%E7%89%B9%E5%B8%81%E4%BD%9C%E4%B8%BA%E5%AE%98%E6%96%B9%E8%B4%A7%E5%B8%81&url=https%3A%2F%2Fhimoney.press%2Fcentral-african-republic-adopts-bitcoin-as-official-currency%2Fhttp://twitter.com/intent/tweet?text=%E4%B8%AD%E9%9D%9E%E5%85%B1%E5%92%8C%E5%9B%BD%E9%87%87%E7%94%A8%E6%AF%94%E7%89%B9%E5%B8%81%E4%BD%9C%E4%B8%BA%E5%AE%98%E6%96%B9%E8%B4%A7%E5%B8%81&url=https%3A%2F%2Fhimoney.press%2Fcentral-african-republic-adopts-bitcoin-as-official-currency%2Fhttps://himoney.press/central-african-republic-adopts-bitcoin-as-official-currency/
+
 中非共和国 加密货币 比特币 萨尔瓦多
-
-
-
+    
 中非共和国总统周三表示，该国已采用比特币作为官方货币，成为非洲第一个，世界上第二个将加密货币作为国家官方货币的国家。
-
-
-
+    
 上周，议会一致通过了一项管理加密货币使用的法案，同时参谋长 Obed Namsio 签署了一份声明，在声明中，他称该决定“为我们国家开辟新机遇的决定性一步”。
-
-
-
+    
 为了加强对加密货币的管理，立法者已经通过了一些提议，包括建立一个监管机构来监督数字货币。财政部长Herve Ndoba 表示，正在实施的立法旨在促进加密货币在经济中的使用。同时他强调拟议的立法并不是试图效仿萨尔瓦多的做法。
-
-
-
+    
 “有一种普遍的说法是，撒哈拉以南非洲国家在适应新技术方面往往落后一步，” Ndoba 说。“这一次，我们实际上可以说我们的国家领先了一步。”对于将加密货币作为官方货币的大胆举动，中非共和国总统也表示支持，他认为这将改善中非公民的条件。
-
-
-
+    
 当然也有人做这个决定表示担忧。上周，该国两位前总理签署了一封信，表达了对在没有 BEAC 指导的情况下采用比特币的担忧，称其为“严重罪行”。
-
-
-
+    
 萨尔瓦多去年成为世界上第一个采用比特币作为法定货币的国家。前期该政府计划于 3 月 15 日至 20 日发行 10 亿比特币支持的债券，但俄乌战争以及加密货币的波动促使当局改变了日期。萨尔瓦多财政部长亚历杭德罗·塞拉亚（Alejandro Zelaya）表示，由于政府决定等待金融市场的有利条件，萨尔瓦多推迟了计划发行的债券。塞拉亚认为：“5 月或 6 月的市场变化略有不同，最迟在 9 月（推出债券）。9 月之后，如果你走出国际市场，就很难（筹集资金）。”
-                                                     
-                     
-                          
-                           
-                              
-                                
-                            
+
+                              https://www.facebook.com/sharer.php?u=https://himoney.press/central-african-republic-adopts-bitcoin-as-official-currency/
+
+                              http://twitter.com/share?url=https://himoney.press/central-african-republic-adopts-bitcoin-as-official-currency/&#038;text=%E4%B8%AD%E9%9D%9E%E5%85%B1%E5%92%8C%E5%9B%BD%E9%87%87%E7%94%A8%E6%AF%94%E7%89%B9%E5%B8%81%E4%BD%9C%E4%B8%BA%E5%AE%98%E6%96%B9%E8%B4%A7%E5%B8%81
             
-                              
-                                
-            
-                              
-                                
+                              mailto:?subject=中非共和国采用比特币作为官方货币&#038;body=https://himoney.press/central-african-republic-adopts-bitcoin-as-official-currency/
 
+                              https://www.linkedin.com/sharing/share-offsite/?url=https://himoney.press/central-african-republic-adopts-bitcoin-as-official-currency/&#038;title=%E4%B8%AD%E9%9D%9E%E5%85%B1%E5%92%8C%E5%9B%BD%E9%87%87%E7%94%A8%E6%AF%94%E7%89%B9%E5%B8%81%E4%BD%9C%E4%B8%BA%E5%AE%98%E6%96%B9%E8%B4%A7%E5%B8%81
 
-                              
-                                
+                              javascript:pinIt%28%29;    
 
-                                  
-                          
-                    
-
-                
-                
+                 	
+## 文章导航
 	
-		文章导航
-		马斯克同意收购 Twitter 后，狗狗币价格飙升
+[马斯克同意收购 Twitter 后，狗狗币价格飙升](https://himoney.press/dogecoin-price-surges-after-musk-agrees-to-buy-twitter/)
