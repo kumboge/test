@@ -5,7 +5,7 @@ title: GNEWS新聞
 ---
 
 > 更新時間 {{site.time | date_to_string: "ordinal", "CN"}}
-#### [中共才是世界上黑帮的幕后大佬]({{site.baseurl}}/2022/2201508.md)
+#### [中共才是世界上黑帮的幕后大佬](2022/2201508.md)
  `秘密翻译组-精翻组 G-Translators/Elite Team`
 
 
