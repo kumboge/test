@@ -1,7 +1,7 @@
 ﻿###  [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 2/2 [**<**](/content/transcript/README.md) [1](/content/transcript/README.md) **2** [查看全部](/content/transcript/README-all.md)
+## 頁面 2/4 [**<**](/content/transcript/README.md) [1](/content/transcript/README.md) **2** [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [**>**](/content/transcript/README-3.md) [查看全部](/content/transcript/README-all.md)
 
 [2019年9月27日文贵大直播全文字版：文贵，班农与Kathy女士直播：江泽民震惊发言：中国要出事！你们准备后路吧！！国庆阅兵没几个国家会参加，川普总统的弹劾程序和对中共的制裁将有大戏上演！](/content/transcript/2023/03/20230304-983149.md)
 
@@ -29,13 +29,29 @@
 
 [2019年9月7日郭先生直播，关注香港被抓 被杀的年轻人全文字版](/content/transcript/2023/02/20230220-947331.md)
 
+[2019年9月5日文贵大直播报平安 直播全文字版：全球从自动灭共到联合灭共的时代](/content/transcript/2023/02/20230214-923443.md)
+
+[2019年9月5日文贵大直播全文字版：回顾自林郑月娥置顶遣返法案，郭先生直播预警，香港69开始游行抗议，CCP派匪警镇压，中国外交部的谎言，美国方面的反应](/content/transcript/2023/02/20230214-923378.md)
+
 [2019年9月4日文贵大直播全文字版：平安直播“林四条”会让香港人民更加团结!香港自贸区即将取消!中共“大湾区”胎死腹中!](/content/transcript/2023/02/20230220-947048.md)
 
 [2019年9月3日文贵大直播全文字版：华盛顿直播：香港将是东西方大战导火线．什么是中共所谓的新型大国关系！](/content/transcript/2023/02/20230221-948267.md)
+
+[2019年9月3日文贵大直播全文字版：第一次在华盛顿直播，谈9月3号CCP将真正对香港进行戒严计划，目前所有焦点都关注香港！](/content/transcript/2023/02/20230214-923514.md)
+
+[2019年9月3日文贵大直播全文字版：华盛顿直播：香港将是东西方大战导火线．什么是中共所谓的新型大国关系！](/content/transcript/2023/02/20230214-923473.md)
 
 [2019年9月1日文贵与班农先生直播习近平与王岐山的攻台计划！全文字版](/content/transcript/2023/02/20230221-948217.md)
 
 [2019年8月29日文贵大直播全文字版：中共是恐怖组织白宫已过10万; 芬太尼 ,假美元是中共3F美国的部分国家行动核心战略](/content/transcript/2023/02/20230223-954868.md)
 
+[2019年8月28日文贵大直播全文字版：解读香港《戒严法》就是可以随时征用你 随时把你的家人抓起来 随时没收你的所有财产](/content/transcript/2023/02/20230205-891394.md)
 
-## 頁面 2/2 [**<**](/content/transcript/README.md) [1](/content/transcript/README.md) **2** [查看全部](/content/transcript/README-all.md)
+[2019年8月28日文贵大直播全文字版：尊敬的战友们好！你们健身了吗？你们传播香港危机真相了吗？从王雁平女士的案子看中国女人的女权危机……一切都是刚刚开始！](/content/transcript/2023/02/20230203-884286.md)
+
+[2019年8月27日文贵大直播全文字版：紧急，这些招数的出台．才是共产党要拿下香港的真实目的！](/content/transcript/2023/02/20230203-884133.md)
+
+[2019年8月26日文贵大直播全文字版：报平安](/content/transcript/2023/02/20230203-884242.md)
+
+
+## 頁面 2/4 [**<**](/content/transcript/README.md) [1](/content/transcript/README.md) **2** [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [**>**](/content/transcript/README-3.md) [查看全部](/content/transcript/README-all.md)

@@ -1,7 +1,7 @@
 ﻿###  [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 1/2 **1** [2](/content/transcript/README-2.md) [**>**](/content/transcript/README-2.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 1/4 **1** [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [**>**](/content/transcript/README-2.md) [查看全部](/content/transcript/README-all.md)
 
 [2023年02月15日文贵大直播--AI和ChatGPT对美国和台湾的威胁可能比核武器还严重 全文字版](/content/transcript/2023/02/20230216-930240.md)
 
@@ -54,4 +54,4 @@
 [2019年9月28郭先生船上直播，香港即将迎来关键一战，国庆就是CCP的末日，美将清算到盗国贼资产，以美灭共，依法灭共，以共灭共的伟大时代已经来临全文字版](/content/transcript/2023/03/20230303-977663.md)
 
 
-## 頁面 1/2 **1** [2](/content/transcript/README-2.md) [**>**](/content/transcript/README-2.md) [查看全部](/content/transcript/README-all.md)
+## 頁面 1/4 **1** [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) [4](/content/transcript/README-4.md) [**>**](/content/transcript/README-2.md) [查看全部](/content/transcript/README-all.md)
