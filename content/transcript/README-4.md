@@ -1,47 +1,57 @@
 ﻿###  [:newspaper:GNews](/content/gnews/README.md) | [:statue_of_liberty:Gettr](/content/gettr/README.md) | [:books:視頻文字](/content/transcript/README.md) | [:pray:關於](/content/about.md)
 ---
 
-## 頁面 4/4 [**<**](/content/transcript/README-3.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) **4** [查看全部](/content/transcript/README-all.md)
+## 頁面 4/109 [**<**](/content/transcript/README-3.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) **4** [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-5.md) [查看全部](/content/transcript/README-all.md)
 
-[2019年8月1日郭文贵先生紧急直播全文字版](/content/transcript/2019/08/20190801-687224.md)
+[2019年8月9日《郭文贵大直播》全文字版：船上报平安直播](/content/transcript/2019/08/20190809-53739787.md)
 
-[2019年7月31日《文贵大直播》全文字版：乱聊上海西郊宾馆，开启CCP死亡第二战场](/content/transcript/2019/07/20190731-695756.md)
+[2023年1月13日郭先生盖特精粹](/content/transcript/2023/01/20230113-53739035.md)
 
-[2019年7月31日文贵大直播全文字版：爆猛料遭黑客疯狂攻击](/content/transcript/2019/07/20190731-659774.md)
+[2023年1月12日郭先生盖特精粹](/content/transcript/2023/01/20230112-53739027.md)
 
-[2019年7月28号文贵报平安全文字版](/content/transcript/2019/07/20190728-708509.md)
+[2019年7月31日《文贵大直播》全文字版：乱聊上海西郊宾馆，开启CCP死亡第二战场](/content/transcript/2019/07/20190731-53733598.md)
 
-[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船上时分](/content/transcript/2019/07/20190727-671755.md)
+[2019年8月7日《文贵大直播》全文字版：王岐山和德国前副总理菲利普什么关系](/content/transcript/2019/08/20190807-53733539.md)
 
-[2019年7月26日文贵大直播全文字版： 江志成这个小鳖孙 和孙力军最近在干啥](/content/transcript/2019/07/20190726-659845.md)
+[2019年8月7日《文贵大直播》全文字版：王岐山和德国前副总理菲利普什么关系](/content/transcript/2019/08/20190807-53733537.md)
 
-[2019年7月25日《文贵大直播》全文字版：请战友们记住7月21号7月23号.......](/content/transcript/2019/07/20190725-643462.md)
+[2023年1月11日文贵大直播全文字版：美国国会会对中国共产党以及美国共产党采取怎么样的实质行动](/content/transcript/2023/01/20230111-53733167.md)
 
-[2019年7月24日《文贵大直播》全文字版](/content/transcript/2019/07/20190724-637841.md)
+[2023年01月10 日 相约3C 欢迎唐平老师回家 全文字版](/content/transcript/2023/01/20230110-53731805.md)
 
-[2019年7月23日文贵大直播全文字版：李鹏为什么一见人就问89年当时你在哪？](/content/transcript/2019/07/20190723-641375.md)
+[2019年8月10日《文贵大直播》全文字版：今天是个好日子，开启灭共第三战场](/content/transcript/2019/08/20190810-53729835.md)
 
-[2019年7月23日直播全文字版](/content/transcript/2019/07/20190723-630097.md)
+[2019年8月5日文贵大直播全文字版：香港大劫在即······](/content/transcript/2019/08/20190805-53729738.md)
 
-[2019年7月22日 直播全文字版](/content/transcript/2019/07/20190722-630263.md)
+[2023年1月10日郭先生盖特精粹](/content/transcript/2023/01/20230110-53728323.md)
 
-[2019年7月21日直播全文字版：爆料革命进入全球灭共的新时代](/content/transcript/2019/07/20190721-583813.md)
+[2023年1月9日郭先生盖特精粹](/content/transcript/2023/01/20230109-53722881.md)
 
-[2019年7月14日班农与文贵直播: 共产党为什么可以强奸美国70年？全文字版](/content/transcript/2019/07/20190714-581838.md)
+[2023年01月08日《文贵大直播》世界经济危机会给爆料革命带来什么？全文字版](/content/transcript/2023/01/20230108-53719434.md)
 
-[2019年7月12日直播全文字版：蔡英文访问纽约；香港接下来的行动；大阪G20的结果已经影响了美国内部的政治！](/content/transcript/2019/07/20190712-535278.md)
+[2023年01月08日《文贵大直播》世界经济危机会给爆料革命带来什么？全文字版](/content/transcript/2023/01/20230108-53719431.md)
 
-[2019年7月10日直播全文字版：不要计较名利，不要评价香港的抗议运动的阶段性的得失，我们只有一个目标：灭共！](/content/transcript/2019/07/20190710-539394.md)
+[2023年01月08日《文贵大直播》世界经济危机会给爆料革命带来什么？全文字版](/content/transcript/2023/01/20230108-53719428.md)
 
-[2019年7月9日直播全文字版：香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？](/content/transcript/2019/07/20190709-533723.md)
+[2023年1月7日郭先生盖特精粹](/content/transcript/2023/01/20230107-53716922.md)
 
-[2019年7月8日直播全文字版：文贵在船上讲述在长岛买豪宅借战友和我是不是双料间谍和王健之死合集](/content/transcript/2019/07/20190708-535274.md)
+[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715693.md)
 
-[2019年7月7日直播全文字版：聊聊我们的郭媒体，王岐山又出手，王健“活该死”及香港抗议将引发的CCP灭亡第一战的意义合集](/content/transcript/2019/07/20190707-532999.md)
+[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715653.md)
 
-[2019年7月6日直播全文字版：与彭文正先生连线——灭共保台](/content/transcript/2019/07/20190706-533711.md)
+[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715528.md)
 
-[2019年7月2日直播全文字版：此次大阪G20是中美会议当中最紧张、最严肃、最奇怪、最没有确定性的的双边会议](/content/transcript/2019/07/20190702-531615.md)
+[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715452.md)
+
+[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715422.md)
+
+[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715404.md)
+
+[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715389.md)
+
+[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715367.md)
+
+[2019年7月27日文贵大直播全文字版：郭文贵先生与战友分享船（床）上时分](/content/transcript/2019/07/20190727-53715350.md)
 
 
-## 頁面 4/4 [**<**](/content/transcript/README-3.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) **4** [查看全部](/content/transcript/README-all.md)
+## 頁面 4/109 [**<**](/content/transcript/README-3.md) [1](/content/transcript/README.md) [2](/content/transcript/README-2.md) [3](/content/transcript/README-3.md) **4** [5](/content/transcript/README-5.md) [6](/content/transcript/README-6.md) [7](/content/transcript/README-7.md) [8](/content/transcript/README-8.md) [9](/content/transcript/README-9.md) ... [109](/content/transcript/README-109.md) [**>**](/content/transcript/README-5.md) [查看全部](/content/transcript/README-all.md)
